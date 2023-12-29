@@ -1,2 +1,2 @@
 # Web_AI-PlagCheck
-Web check plagarisme tubes daskom use AI
+lagi dicoba semoga tidak stresss 🙏
